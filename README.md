@@ -1,1 +1,0 @@
-# cayber_sec_academy
